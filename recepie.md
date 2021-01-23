@@ -1,0 +1,1 @@
+first break the omlet into a bowl and and 1/2 spoonn of salt and mix it well then add  1/2 spoon of masala and mix it until it is dissolved and then take a fryiong pan and toss it on the pan and spread it and  fry and flip and its ready
